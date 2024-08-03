@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rai650
 - 👀 I’m interested in robotik
 - 🌱 I’m currently learning MAN 2 GRESIK
-- 💞️ I’m looking to collaborate on EVI
+- 💞️ I’m looking to collaborate on A.T.M
 - 📫 How to reach me call me
 - 😄 Pronouns: follow me
 - ⚡ Fun fact: i gender is male
